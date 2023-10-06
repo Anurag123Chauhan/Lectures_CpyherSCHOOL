@@ -1,0 +1,2 @@
+# Lectures_CpyherSCHOOL
+Majduri
